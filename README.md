@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AnushaYadaV4
+- 👋 Hi, I’m Anusha
 - 👀 I’m interested in Coding.
 
 
